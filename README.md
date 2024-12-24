@@ -8,6 +8,6 @@
 
 ![Analytics)@](https://github.com/user-attachments/assets/f838f366-ad7f-44e3-be18-2bf53e5fcebd)
 
-![Settings)!](https://github.com/user-attachments/assets/ac4a4cde-b5c5-4295-9c1b-1e104ce477a4)
+![Settings)!](https://github.com/user-attachments/assets/0f94f928-eb27-4478-9857-7f5de66c6a3f)
 
 ![Settings)@](https://github.com/user-attachments/assets/b46b4a8d-5b06-4f0b-9c37-e275b4e05295)
